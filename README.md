@@ -72,3 +72,9 @@
 - [デルモンテ　完熟カットトマト　３８８ｇ](https://www.kikkoman.co.jp/products/product/K502000/index.html)
 - [キューピー サラダクラブ ミックスビーンズ（ひよこ豆、青えんどう、赤いんげん豆）](https://www.kewpie.co.jp/products/product/saladclub/saladclub/4901577337390/)
 - [特製S&Bカレー粉 (赤缶)](https://www.sbfoods.co.jp/products/detail/86218.html)
+
+### 6. さいごに
+
+**Have a nice curry life!**  
+**You'll so happy!**  
+**Very very happy!**  
